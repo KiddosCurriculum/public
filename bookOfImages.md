@@ -1,3 +1,4 @@
+![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/kiddoscurriculum/public/blob/master/EfMTqrGWAAYGDJm.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/kiddoscurriculum/public/blob/master/Screen+Shot+2018-10-28+at+10.01.07+PM.png)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/kiddoscurriculum/public/blob/master/Screen+Shot+2018-10-28+at+10.01.25+PM.png)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/kiddoscurriculum/public/blob/master/Screen+Shot+2018-10-28+at+10.01.33+PM.png)
